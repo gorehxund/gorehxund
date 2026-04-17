@@ -1,1 +1,1 @@
-<p align='center'> <a href='https://pronouns.cc/@luvrkane'> kane </a> . he/him </br> 17 y/o , trans & queer . disabled </br>dogboy / kemonomimi & furry </br>artist - <a href='https://poltergeist-artcomms.straw.page/'> art comms open</a></p>
+<p align='center'> jaydin . he/him </br> 17 y/o , trans & queer . disabled </br>dogboy / kemonomimi & furry </br>artist - art comms open </br> <a href='https://www.instagram.com/rottn.one/'> insta </a></p>
